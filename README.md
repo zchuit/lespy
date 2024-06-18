@@ -1,7 +1,7 @@
 # 给个能打开的网址给个能打开的网址
 知不觉山娃倒跟周围出租屋里的几个小但
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=aFQjCpKLyjmMkJDTPPmIM46mcs0b-moe8w2Xe6-iLGqpxJgfWTUHTnAr0yehHs6i&wd
+<a href="https://github.com/zchuit/pxmid/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 给个能打开的网址给个能打开的网址　　同时，我也不需要再去应酬那些朋友，与她们一起在咖啡屋里装作深沉地探讨人生讨论生活而深夜未归了。
 　　去南边支部进修，半年之久。我每天黄昏会去那片植被园，看“猪笼草”、“降雨树”，再有“神奇果”，更要害的是，我想看看那棵已经划伤我手指头的针形叶植被。
